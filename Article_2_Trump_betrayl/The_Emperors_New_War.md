@@ -1,6 +1,6 @@
 # The Emperor's New War
 
-*When the Last Thread Snaps*
+*The Emperor Has No Clothes*
 
 **By IronRUST** | March 18, 2026
 
