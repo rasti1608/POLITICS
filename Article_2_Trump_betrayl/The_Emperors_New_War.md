@@ -12,7 +12,7 @@ I watched this man for years — the rallies, the promises, the patterns. I saw 
 
 So no — I never thought Donald Trump was going to save America. I never wore the hat. I never trusted the plan.
 
-But in 2024, when the choice came down to him or a candidate who inspired even less confidence, I made a calculation that millions of others made too. Not the fanatics. Not the cult. Regular people who looked at the options, held their nose, and thought: maybe. When I saw who he was putting around himself — people who talked about ending wars, restraining the machine, putting America first in more than just a slogan — I thought his own selfishness might be enough. A man that desperate to be great, that obsessed with legacy, wouldn't destroy himself. He wouldn't start the one war that would sink everything he built.
+But in 2024, when the choice came down to him or a candidate who inspired even less confidence, I made a calculation that millions of others made too. Not the fanatics. Not the cult. Regular people who looked at the options, held their nose, and thought: maybe. When I saw who he was putting around himself — Tulsi Gabbard as Director of National Intelligence, a woman who left the Democratic Party over its addiction to regime change wars; voices who talked about restraint, about putting America first in more than just a slogan — I thought his own selfishness might be enough. A man that desperate to be great, that obsessed with legacy, wouldn't destroy himself. He wouldn't start the one war that would sink everything he built.
 
 That was the thread I held onto. The thinnest thread in the room. Not belief. Not trust. Just the assumption that his ego would be the guardrail that his character never could be.
 
@@ -26,7 +26,7 @@ The signs were visible long before March 2026 for anyone willing to see them.
 
 June 2025. The twelve-day war with Iran. Israel pushed, Trump followed. Bombs fell on Iranian soil, and for twelve days the world held its breath. Then it stopped. At the time, you could still rationalize. Maybe it was a contained response. Maybe the people around him pulled him back. Maybe the system worked. The promise was cracked, but you could still argue it wasn't shattered.
 
-But look at what was happening underneath. The people who were supposed to be guardrails — the voices of restraint inside the Pentagon and the National Security Council — were being systematically removed. Not through policy disagreements. Through phone calls. Through pressure from donors whose primary loyalty was to a foreign government, not to the country they claimed to serve. One by one, everyone who might have said "no" was replaced by someone who would say "yes."
+But look at what was happening underneath. The people who were supposed to be guardrails — the voices of restraint inside the Pentagon and the National Security Council, people like Dan Caldwell and the America First cadre in the Department of Defense — were being systematically removed. Not through policy disagreements. Through phone calls. Through pressure from donors whose primary loyalty was to a foreign government, not to the country they claimed to serve. Laura Loomer could pick up the phone, call the president, and have an entire team of restraint-minded officials fired by morning. And she did. Joe Kent, the Green Beret who would later lead the National Counterterrorism Center, watched this process from the inside — the methodical replacement of everyone who might say "no" with someone who would say "yes." One by one, the guardrails were pulled from the road. And the people who thought their guys were in control of the administration discovered that their guys were outranked at every turn by a donor, a lobbyist, or a phone call from someone whose loyalty was to Tel Aviv, not to them.
 
 And Trump let it happen. Not because he was overruled. Because he did not care enough to stop it. The promises about ending wars, draining the swamp, putting America first — they were campaign lines, not convictions. When the lobby came calling with enough money and enough flattery, the lines dissolved like they were written in smoke.
 
@@ -81,6 +81,16 @@ The administration's surrogates piled on within hours. A deputy called him "a cr
 This is what happens now to anyone inside the system who says what is true. Not what is politically convenient. Not what the donors want to hear. What is actually, demonstrably, verifiably true: that this war was started under pressure from a foreign government and its lobby, that it serves no American interest, and that the people who launched it have no idea how to end it.
 
 The message to every general, every analyst, every official who privately agrees with Kent is unmistakable: speak up and we will destroy you. Keep quiet and you keep your career. That is the choice. And in a system that operates on that logic, the truth doesn't just become difficult to say. It becomes dangerous.
+
+And then there is Tulsi Gabbard. Kent's boss. The Director of National Intelligence. The woman who built her entire political identity on opposing regime change wars. Who left the Democratic Party over it. Who stood on a debate stage and dismantled Kamala Harris. Who called out the Clinton war machine by name, to its face, and didn't flinch. Who went to Syria herself to see the truth on the ground.
+
+I believed in her. In 2020, I supported her presidential campaign — shook her hand, followed every speech, believed that here was someone who actually meant it when she said no more regime change wars. She was one of the reasons I thought the people around Trump in his second term might be different. If Tulsi was in the room, maybe the worst impulses would be checked. That was not a small part of why I allowed myself to hope.
+
+And now her counterterrorism director just resigned and told the country that this war was built on Israeli pressure and American lies. The White House told her to fire Kent before he could resign. She refused — but she also did not resign herself. She has not spoken publicly. She has not confirmed or denied what Kent said.
+
+Tulsi — where are you? The woman who stared down Hillary Clinton and called her the queen of warmongers. The woman who sacrificed her career in the Democratic Party because she refused to stay silent about endless wars. Where is that person right now? Because the war you spent your entire public life warning against is happening on your watch, under your authority, and your silence is deafening.
+
+If Tulsi Gabbard remains in this administration after what Kent revealed, then every speech she ever gave about opposing these wars, every principle she ever claimed to hold, every reason anyone ever believed she was different — all of it was performance. And the last guardrail was never a guardrail at all. It was a prop.
 
 ---
 
