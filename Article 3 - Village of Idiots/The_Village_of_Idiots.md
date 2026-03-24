@@ -54,7 +54,7 @@ This is the play. The peace talks are the cover. The five days are the countdown
 
 ## The Apprentice Runs a War
 
-Professor Jeffrey Sachs, speaking from China, watched Trump's Monday press conference and said what needed to be said. "If this turns out to be completely false, I think we have to consider the possibility that the president has really lost touch with reality. Something is seriously wrong."
+Professor Jeffrey Sachs, watching Trump's public statements on Monday, said what needed to be said. "If this turns out to be completely false, I think we have to consider the possibility that the president has really lost touch with reality. Something is seriously wrong."
 
 Sachs did not use those words lightly. He is one of the most respected economists and foreign policy voices in the world. He has advised governments across decades. And he watched the president claim successful negotiations that the other party says never happened, promise joint control of the Strait of Hormuz with "me and the Ayatollah, whoever the Ayatollah is," and compare this war to Venezuela — a country that bears no resemblance to Iran in military capability, population, geography, or strategic significance.
 
