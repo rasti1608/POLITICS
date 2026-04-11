@@ -112,13 +112,13 @@ But this time, the cost is not seventy million lives. This time, the cost could 
 
 That is the trap. Not Trump's trap. Not Iran's trap. Not a geopolitical trap or an economic trap or a military trap. A civilizational trap — a situation in which an ideology that must be stopped has made the cost of stopping it potentially unsurvivable.
 
-And every day that passes makes this trap tighter. Iran will have nuclear weapons within a year. Saudi Arabia will follow. Turkey will consider it. The Middle East will become the most nuclearized region on Earth. And Israel — watching its monopoly on nuclear power evaporate, watching its project fail, watching 500 million people who have witnessed its genocide on live television for two years begin to mobilize — will face the existential moment its ideology has always predicted. The moment when the enemies close in. The moment when the temple must come down.
+And every day that passes makes this trap tighter. Because the project is failing. We are losing the war — no matter how Trump spins it, no matter how many times Pete Hegseth reads a list of dead Iranian generals on television, no matter how many times Fox News calls a botched rescue mission an Easter miracle. The Strait is still closed. Iran is still standing. The regime is still in power. Every objective of this war has failed. And Israel — the state that engineered this war, that sent the head of Mossad to live in the White House selling a fantasy, that convinced a president to ignore his own military and intelligence agencies — is watching its forty-year project collapse in real time.
 
-The messianic wing will say: this is what we were born for.
+A cornered animal is dangerous. A cornered ideology is worse. A cornered ideology with four hundred nuclear warheads and a doctrine that says "if we go down, everyone goes down" is the most dangerous thing that has ever existed on this planet.
 
-The rational minority will say: we cannot do this.
+And the man standing between this cornered beast and catastrophe is Donald Trump — a man whose own European ally came back from meeting him and privately told colleagues he had "lost his mind." A man who posts "Praise be to Allah" while threatening genocide. A man who couldn't say no to starting this war, and who has shown no capacity to say no to the people who will push for the next escalation. And the next. And the next. Until there is nothing left to escalate with except the unthinkable.
 
-And the world will watch — paralyzed by the same question that would have paralyzed the Allies if Hitler had the bomb: can we afford to stop them? Can we afford not to?
+The world will watch — paralyzed by the same question that would have paralyzed the Allies if Hitler had the bomb: can we afford to stop them? Can we afford not to?
 
 ---
 
