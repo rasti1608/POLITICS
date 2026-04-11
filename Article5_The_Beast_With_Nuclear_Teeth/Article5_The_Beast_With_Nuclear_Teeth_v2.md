@@ -18,7 +18,7 @@ Now I need you to hold that thought. Hold it carefully. Because what I am about 
 
 ## The Ideology
 
-In 2016, an American journalist walked through Israeli cities with a camera. The responses from ordinary citizens — students, families, children — were uniform.
+In 2016, American journalist Abby Martin walked through Israeli cities with a camera and asked ordinary citizens what they thought about Palestinians, about Arabs, about peace. What she documented should have been a turning point for the world. The responses from students, families, shopkeepers, children — across every generation and every walk of life — were uniform.
 
 "Kill all Arabs." A child, laughing.
 
