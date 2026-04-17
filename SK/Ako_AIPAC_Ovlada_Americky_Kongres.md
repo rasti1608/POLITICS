@@ -88,6 +88,30 @@ Zamysli sa nad tým: v krajine, kde je sloboda prejavu prvým dodatkom Ústavy, 
 
 ---
 
+## Šesť korporácií — 90% amerických médií
+
+Väčšina Američanov si myslí, že majú slobodné médiá s množstvom nezávislých hlasov. Realita je iná. Prakticky všetko, čo priemerný Američan vidí, počuje a číta, kontroluje **šesť mediálnych korporácií**: Comcast (NBC, MSNBC), Walt Disney Company (ABC), Warner Bros. Discovery (CNN), Paramount, News Corp (Fox News), a ďalšie menšie konglomeráty.
+
+V 80. rokoch existovalo v USA viac ako 50 nezávislých mediálnych spoločností. Dnes šesť korporácií kontroluje viac ako 90% mediálneho trhu.
+
+### Prečo je to relevantné pre Izrael?
+
+Všetkých šesť hlavných mediálnych konglomerátov udržiava zdokumentovaný **pro-izraelský editoriálny postoj**. Toto nie je o tom, kto je vlastníkom — je to o systéme, v ktorom pro-izraelská pozícia je štandardná editoriálna politika naprieč celým spektrom, od "liberálneho" CNN až po "konzervatívny" Fox News.
+
+Tento postoj nie je náhoda. Funguje cez tri mechanizmy:
+
+**1. Reklamný tlak.** Veľkí inzerenti — korporácie, finančné inštitúcie — neriskujú asociáciu s médiami, ktoré sú označené ako "anti-izraelské." Strata inzerentov znamená stratu príjmov. Média sa preto vyhýbajú kritike Izraela nie z presvedčenia, ale z ekonomickej nevyhnutnosti.
+
+**2. Prístupová žurnalistika.** Ak novinár alebo redakcia kritizuje Izrael príliš ostro, strácajú prístup k izraelským aj americkým vládnym zdrojom. V mediálnom biznise, kde prístup k zdrojom je mena, to znamená profesionálnu smrť.
+
+**3. Koordinovaná reakcia AIPAC.** Keď médium publikuje niečo kritické voči Izraelu, AIPAC aktivuje svoju sieť: tisíce e-mailov, telefonátov, sťažností inzerentom. Redaktori sa rýchlo naučia, že kritika Izraela prináša neúmerné množstvo problémov v porovnaní s akoukoľvek inou témou.
+
+**Výsledok:** Američan, ktorý sleduje CNN, Fox News, NBC, ABC — nezáleží na tom, ktorý kanál — dostáva v podstate rovnaký naratív o Izraeli. Líšia sa v názoroch na dane, imigráciu, potraty. Ale na Izraeli sa zhodujú takmer dokonale. To nie je pluralita názorov. To je konsenzus vyrobený systémom.
+
+Tucker Carlson — najsledovanejší konzervatívny komentátor v Amerike — bol vylúčený z MAGA hnutia a čelí trestnému stíhaniu od CIA za to, že hovoril s Iráncami. Laura Loomer, žena, ktorá má priamy prístup k prezidentovi, verejne oslavuje jeho stíhanie. To je úroveň mediálnej kontroly, o ktorej hovoríme.
+
+---
+
 ## "Ale veď to nie je možné, aby kúpili všetkých"
 
 Opäť: nekupujú všetkých. Systém funguje takto:
@@ -124,7 +148,33 @@ Predstav si parazita, ktorý je tak hlboko zapustený do hostiteľa, že jeho od
 - Možnému vyšetrovaniu (pozri Traficant)
 - Koncu politickej kariéry
 
-**5. Samsonova možnosť.** Izrael má podľa odhadov 80-400 nukleárnych hlavíc. Existuje doktrína nazývaná "Samsonova možnosť" — ak Izrael čelí existenčnej hrozbe, je ochotný použiť nukleárne zbrane, aj keby to znamenalo zničenie celého regiónu. David Sacks, kryptomenový poradca Bieleho domu, verejne varoval, že táto vojna by mohla viesť k tomu, že Izrael nasadí nukleárnu zbraň. Toto nie je konšpirácia. Toto je vyhlásenie člena Trumpovej administratívy.
+**5. Samsonova možnosť — Prečo je toto najnebezpečnejší bod zo všetkých.**
+
+Možno si myslíš: "Kto by zničil sám seba? Kto by zabil vlastné deti? To je bluf." Nie je to bluf. A tu je prečo.
+
+Izrael má podľa odhadov **80 až 400 nukleárnych hlavíc**. Izrael nikdy oficiálne nepotvrdil ani nepoprel, že vlastní jadrové zbrane. Táto politika sa volá **"amimut"** (עמימות) — **jadrová nejednoznačnosť**. Je to oficiálna izraelská štátna politika. Izrael odmieta pripojiť sa k Zmluve o nešírení jadrových zbraní (NPT) a odmieta inšpekcie svojich jadrových zariadení, vrátane reaktora v Dimone v púšti Negev.
+
+Doktrína **"Samsonova možnosť"** je pomenovaná podľa biblického Samsona, ktorý zrútil chrám na seba aj na svojich nepriateľov, keď bol v beznádejnej situácii. V kontexte Izraela to znamená: ak Izrael čelí existenčnému ohrozeniu — ak je štát pred zánikom — je pripravený použiť jadrové zbrane proti všetkým okolitým krajinám a potenciálne aj ďalším cieľom, aj keby to znamenalo vlastné zničenie.
+
+**Toto nie je konšpirácia. Toto je zdokumentovaná strategická doktrína.**
+
+Seymour Hersh, držiteľ Pulitzerovej ceny a jeden z najrešpektovanejších investigatívnych novinárov v histórii americkej žurnalistiky, napísal v roku 1991 knihu s názvom **"The Samson Option: Israel's Nuclear Arsenal and American Foreign Policy"** (Samsonova možnosť: Izraelský jadrový arzenál a americká zahraničná politika). V tejto knihe zdokumentoval, ako Izrael vybudoval svoj jadrový program tajne, s vedením aj proti vôli amerických prezidentov, a ako táto doktrína funguje ako poistka poslednej inštancie.
+
+**Martin van Creveld**, izraelský vojenský historik a profesor na Hebrejskej univerzite v Jeruzaleme — teda nie nepriateľ Izraela, ale jeho vlastný akademik — povedal v rozhovore:
+
+> "Vlastníme niekoľko stoviek atómových hlavíc a rakiet a môžeme ich odpáliť na ciele vo všetkých smeroch, možno dokonca na Rím. Väčšina európskych hlavných miest sú ciele pre naše letectvo... Máme schopnosť stiahnuť svet so sebou. A môžem vás uistiť, že sa to stane skôr, než Izrael zanikne."
+
+Prečítaj si to ešte raz. Toto povedal izraelský profesor. Nie iránsky. Nie ruský. Izraelský. Na Hebrejskej univerzite v Jeruzaleme.
+
+**David Sacks**, kryptomenový poradca Bieleho domu v Trumpovej administratíve — teda nie kritik, nie outsider — verejne varoval, že táto vojna s Iránom by mohla viesť k tomu, že Izrael nasadí jadrovú zbraň. Povedal to on-the-record, ako člen súčasnej americkej vlády.
+
+### Prečo to nie je bluf:
+
+Aj keby existovala len 5% šanca, že Izrael v extrémnej situácii použije jadrovú zbraň — hovoríme o krajine s 80-400 hlavicami, obklopenej nepriateľmi, vedenou vládou, ktorá preukázala nulové zábrany v Gaze a Libanone, s mesiášskym krídlom, ktoré doslova víta apokalypsu ako naplnenie biblického proroctva. 
+
+Sú to tí istí ľudia, ktorí porovnávajú bombardovanie Iránu s biblickými ranami egyptskými. Netanyahu sám to povedal na kameru. Minister financií Smotrich oznámil plány na anexiu južného Libanonu. Toto nie sú ľudia, ktorí blufujú. Toto sú ľudia, ktorí veria, že konajú z božieho poverenia.
+
+Teraz si predstav, že sa pokúsiš "jednoducho odrezať" takúto krajinu od americkej podpory. Krajinu so stovkami jadrových hlavíc, s doktrínou, ktorá hovorí "ak padneme, padnete s nami," s vedením, ktoré považuje svoju misiu za posvätnú. **To je ten parazit. A preto ho nemôžeš jednoducho vytrhnúť.**
 
 ### Čo to znamená prakticky:
 
@@ -147,10 +197,13 @@ A ten systém je reálny. Je zdokumentovaný. Je verejný. A práve teraz — v 
 - **OpenSecrets.org** — sledovanie politického financovania v USA, vrátane AIPAC
 - **AIPAC.org** — vlastná webstránka organizácie
 - **"The Israel Lobby and U.S. Foreign Policy"** — kniha od Johna Mearsheimera a Stephena Walta (profesori z University of Chicago a Harvardu)
+- **"The Samson Option: Israel's Nuclear Arsenal and American Foreign Policy"** — kniha od Seymoura Hersha (1991), Pulitzerová cena za investigatívnu žurnalistiku
+- **Martin van Creveld** — citácia z rozhovoru, izraelský vojenský historik, Hebrejská univerzita v Jeruzaleme
 - **Thomas Massie** — rozhovory na YouTube (hľadaj "Thomas Massie AIPAC")
 - **Robert Pape** — Substack a rozhovory (The Diary of a CEO, Mario podcast)
 - **Joe Kent** — rezignačné vyhlásenie, marec 2026
 - **Anti-BDS legislatíva** — Palestine Legal (palestinelegal.org) sleduje všetkých 38 štátov
+- **Mediálna konsolidácia** — "Who Owns the Media?" na Columbia Journalism Review
 
 ---
 
